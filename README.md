@@ -1,2 +1,1 @@
-Papers by Dr. Karsten Mueller recalibrating 
-the times of the Exodus and of Ramses II
+Papers by Dr. Karsten Mueller about calendrical calculations and their historical implications, yet unpublished, work in progress
